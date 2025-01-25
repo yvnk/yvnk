@@ -1,4 +1,10 @@
 ## Hi there 👋
+I'm Venkata Narendra Kumar Yerriboina ⚡.
+
+Contact:
+narendra@gmail.com
+
+
 
 <!--
 **yvnk/yvnk** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
