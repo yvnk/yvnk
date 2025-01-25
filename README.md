@@ -2,7 +2,7 @@
 I'm Venkata Narendra Kumar Yerriboina ⚡.
 
 ### Contact:
-narendra@gmail.com
+yvnk.narendra@gmail.com
 
 
 
