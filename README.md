@@ -1,8 +1,8 @@
 ## Hi there 👋
 I'm Venkata Narendra Kumar Yerriboina ⚡.
 
-Contact:
-narendra@gmail.com
+### Contact:
+- narendra@gmail.com
 
 
 
